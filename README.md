@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @selinibooglu
 - 👀 I’m interested in music and building my business on the Internet
-- 🌱 I’m currently learning Web Development, Music Theory,Producing music and playing guitar
+- 🌱 I’m currently learning Web Development, Music Theory, Producing music and Playing Guitar
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me iboogluselin@gmail.com
 
